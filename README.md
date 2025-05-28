@@ -16,7 +16,7 @@ we prioritize clear goals and proven strategies. From campaign development to mu
 
 ## Marketing Consultant in Chicago: Expert Guidance for Local Growth
 
-Need clarity on your direction? Our [marketing consultant in Chicago](https://allevi8marketing.com/what-we-do/maintain/marketing-consultation/)  offers actionable insights and a roadmap designed around your niche, competition, and target audience.
+Need clarity on your direction? Our [marketing consultant Chicago](https://allevi8marketing.com/what-we-do/maintain/marketing-consultation/)  offers actionable insights and a roadmap designed around your niche, competition, and target audience.
 
 ---
 
